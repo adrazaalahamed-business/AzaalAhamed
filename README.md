@@ -1,2 +1,2 @@
 # AzaalAhamed
-Begins fir digital marketing &amp; freelance work
+Begins for digital marketing &amp; freelance work
